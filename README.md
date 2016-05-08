@@ -4,5 +4,6 @@ Just repository
 
 Hi Fans!
 
-wieryo, penyuka anime, drama korea juga fashionista :v
+wieryo here, please teach me about web programer.
+Just it.
 
